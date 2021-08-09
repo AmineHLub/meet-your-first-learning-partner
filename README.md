@@ -1,3 +1,6 @@
+                                                             **First working agreements**
+
+
 1/ My partner(s) and I will meet at the following times:
 
 a/ In the first Program Time Session between 8:30 am and 12:00 noon in our program timezone, we will meet at:
